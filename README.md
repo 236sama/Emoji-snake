@@ -16,6 +16,6 @@
 
 - 이걸 만든 저는 17살로, 제가 ~~아이디어를 내고 GPT가~~ 만든 최초의 게임으로, 동아리방에서 만들었습니다. / I'm 17 years old making this, and it was created in part of Club Activity as the first game I ~~came up with and ChatGPT~~ made.
 
-- 왜 체리냐고요? 음... 어디까지나 그 속어와는 관련이 없음을 알려드립니다. 님 일상생활 가능하세요? 🫪 / Why Cherries? Got no impure intetions. COULD YOU PLEASE GET YOUR MIND OUTTA THE GUTTER? 🫪
+- 왜 체리냐고요? 음... 어디까지나 그 속어와는 관련이 없음을 알려드립니다. 님 일상생활 가능하세요? 🫪 / Why Cherries? Got no impure intentions. COULD YOU PLEASE GET YOUR MIND OUTTA THE GUTTER? 🫪
 
 - 이모지로 게임을 만든 걸 시작으로, 저의 도전~~이라 쓰고 장난이라고 읽는다~~은 계속됩니다. / Starting with making a game with emojis, my ~~mis~~challenges will continue.
